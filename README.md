@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Garimi
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me at gmail(garimasingh8111jkgs@gmail.com)
